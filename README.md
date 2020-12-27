@@ -1,1 +1,1 @@
-# Projetos-e-Exerc-cios---Livro-RNA-para-engenharia-e-ci-ncias-aplicadas
+# Projetos-e-Exercícios---Livro-RNA-para-engenharia-e-ciências-aplicadas
